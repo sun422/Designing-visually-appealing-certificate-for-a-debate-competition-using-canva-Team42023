@@ -1,1 +1,0 @@
-# Designing-visually-appealing-certificate-for-a-debate-competition-using-canva-Team42023
